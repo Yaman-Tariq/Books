@@ -25,7 +25,7 @@
 - ##### defile: a steep sided passage with which(i guess) only one person can pass through at a time
 - ##### lip: the edge of a hollow container
 - ##### petered out: to decrese or fade gradually before comming to an end. sort of like a gradient of a color ending
-- ##### 
+- ##### tamer: not exciting, adventurous, or controversial.
 - #####
 - #####
 - #####
