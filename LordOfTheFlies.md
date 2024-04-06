@@ -26,8 +26,8 @@
 - ##### lip: the edge of a hollow container
 - ##### petered out: to decrese or fade gradually before comming to an end. sort of like a gradient of a color ending
 - ##### tamer: not exciting, adventurous, or controversial.
-- #####
-- #####
+- ##### tumble: to fall down/collapse
+- ##### 
 - #####
 - #####
 - #####
