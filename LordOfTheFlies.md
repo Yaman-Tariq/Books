@@ -16,16 +16,16 @@
 - ##### effulgence: the ability to shine brightly
 - ##### fronds: leaf like things(they are leaves bruh). ye marijwana key pattey jesse dikhtey heen
 - ##### conch: ek shell hota hey.
-- #####  
-- #####
-- #####
-- #####
-- #####
-- #####
-- #####
-- #####
-- #####
-- #####
+- #####  plaint: easily bent or easily influenced
+- ##### laced: entwine/ entangle e.g. laced her fingers together
+- ##### immured: to be confined or enclosed against ones will
+- ##### communion: sharing thoughts and feelings on a spiritual or mental level
+- ##### trot: to walk briskly
+- ##### briskly: to walk in an energetic fast manner
+- ##### defile: a steep sided passage with which(i guess) only one person can pass through at a time
+- ##### lip: the edge of a hollow container
+- ##### petered out: to decrese or fade gradually before comming to an end. sort of like a gradient of a color ending
+- ##### 
 - #####
 - #####
 - #####
