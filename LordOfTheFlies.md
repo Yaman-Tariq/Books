@@ -12,5 +12,42 @@
 - ##### jagged: rough and things protruding out.
 - ##### proffer: an offer or a proposal
 - ##### hung: in the book, i believe it means like to stay close
+- ##### grubby: dirty/covered in dirt
+- ##### effulgence: the ability to shine brightly
+- ##### fronds: leaf like things(they are leaves bruh). ye marijwana key pattey jesse dikhtey heen
+- ##### conch: ek shell hota hey.
+- #####  
 - #####
-- 
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+  
+  
+  
+  
