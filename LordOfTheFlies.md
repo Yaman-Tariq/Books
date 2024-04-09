@@ -35,8 +35,8 @@
 - ##### gape: stare with one's mouth open wide in amazement or wonder. 
 - ##### gesticulate: use gestures, especially dramatic ones, instead of speaking or to emphasize one's words.
 - ##### clamour: goup of people shouting loudly
+- ##### blotted: to mark or stain something. e.g. ""dark patches of dirt blotted the grey dress"
 - ##### 
-- #####
 - #####
 - #####
 - #####
