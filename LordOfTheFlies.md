@@ -36,6 +36,16 @@
 - ##### gesticulate: use gestures, especially dramatic ones, instead of speaking or to emphasize one's words.
 - ##### clamour: goup of people shouting loudly
 - ##### blotted: to mark or stain something. e.g. ""dark patches of dirt blotted the grey dress"
+- ##### warped: to be twisted or bent out of orignal shape
+- ##### bored into: to dig or push something into surface repeatedly, often in a relentless or fidgety way
+- ##### Coarse: related to texture, rough, thick and possibly unconformtable to sit or kneel on.
+- ##### mutter: speak in a low or barely audible voice, in dissatisfaction or irritation
+- ##### induce: succeed in persuading or leading (someone) to do something
+- ##### stirred: to move or cause to move slightly
+- ##### murmer: to say something in a low or indistinct voice
+- ##### stumble: trip or momentarily lose one's balance; almost fall
+- ##### grave: cause for alarm; serious
+- ##### exasperating: intensely irritating and frustrating.
 - ##### 
 - #####
 - #####
@@ -47,6 +57,36 @@
 - #####
 - #####
 - #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+- #####
+
   
   
   
