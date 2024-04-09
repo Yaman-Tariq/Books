@@ -31,11 +31,11 @@
 - ##### scornful: feeling or showing mockery towards something.
 - ##### plonk: set down heavily or carelessly
 - ##### aloft: up in the air or overhead
-- #####
-- #####
-- #####
-- #####
-- #####
+- ##### smart: It's an archaic term meaning a stinging or burning pain e.g "the smarting of sunburn hurt a lot"
+- ##### gape: stare with one's mouth open wide in amazement or wonder. 
+- ##### gesticulate: use gestures, especially dramatic ones, instead of speaking or to emphasize one's words.
+- ##### clamour: goup of people shouting loudly
+- ##### 
 - #####
 - #####
 - #####
